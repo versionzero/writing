@@ -1,13 +1,20 @@
 
-You say I have a real bad tendency to turn a good thing in to mold.
+They say I have a real bad tendency to turn a good thing in to
+mold. This is something that I no longer want to be told.
 
-This is something I no longer want to be told.
+I want to be a good person, because you are worth keeping. I know this
+true, because I love being around you, even when you are sleeping.
 
-I want to be a good person, because I know you are worth the hold.
+There is much I don't know about you, but it's clear you want
+something good. I think we go well together, and I don't want my
+inactions to be missunderstood.
 
-But please, I'm still learning, so I need you to be bold.
+I don't know if I am the right person, but I think we should
+try. Because I don't want to loose you and wonder why.
 
-If you see me slipping, remind me a little -- I won't be cold.
+
+But please, I'm still learning, so I need you to be bold. If you see
+me slipping, remind me a little -- I won't be cold.
 
 If you think I'm slipping, I need to be told. I don't want to push you
 away, because I need you to hold.
@@ -18,7 +25,13 @@ is too important to fold.
 If you think I'm slipping, I need to be told. You are the closet thing
 I've ever had to gold.
 
-If you think this is a garbage excuse for how I've been, you're
-right. You don't owe me anything, but I don't need a scold.
+
+There are so many things I don't know, but I do know I want you. And
+as cliche as it sounds: I hope you do too.
+
+So if being a better person means keeping this alive. I'm ready to
+take the dive. For that, I will strive.
+
+
 
 I just need to be told. I need you to be bold: I need to be told.
