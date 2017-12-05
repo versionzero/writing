@@ -14,12 +14,12 @@ He carried on, not thinking to deeply about what was to come.
 He was still in the prairies, but on the move. It was flatter than
 Alberta, but still, it felt familiar.
 
-He come came across a point of interest. It - like most of the drive -
-was flat, too. Possibly the point was that the flatness was of
-particular interest. He didn't know -- there was no further
-information.
+He came across a point of interest. It - like most of the drive - was
+flat, too. Possibly the point was that the flatness was of particular
+interest. He didn't know -- there was no further information.
 
-He carried on, zig-zagging his way east and north towards his destination.
+He carried on, zig-zagging his way northeast, towards his destination,
+leaving his former life behind.
 
 Occasionally the roads were good. However, they seemed to have grown
 worse after crossing in to the new province. Some went so far as to
@@ -29,7 +29,7 @@ Unlike long drives in his youth, this one's was draining. Physically
 and emotionally. He missed his friends and the benefits that came with
 them. But not enough to turn back. No. He had to keep going.
 
-He carried on, through the wind and a light worry.
+He carried on, in no hurry, through the wind and a slight worry.
 
 There were many small towns along the way. One was a paradise away
 from home, or at least that's what they said it was. Who knows what
